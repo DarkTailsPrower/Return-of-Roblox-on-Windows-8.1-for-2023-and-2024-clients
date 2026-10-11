@@ -11,3 +11,6 @@ https://archive.org/details/20240225_20240225_0533
 
 Roblox July 30 2023 Client + Studio
 https://archive.org/details/roblox-july-30-2023-client-studio
+
+
+I have a video where I recorded Roblox on May 29, 2024, it was running really fast, faster than the current Roblox client https://www.youtube.com/watch?v=EzUOgVc9mdk&t=904s
